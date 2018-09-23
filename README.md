@@ -1,4 +1,4 @@
-# Elaine-1-Reposit-rio
+# Elaine-1-Repositorio
 Elaine criação de 1º repositório
 
 1) Denzel Washington
